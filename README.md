@@ -1,4 +1,4 @@
 # Usually-the-data
    my note book 
 
-**This guy is a genius**
+**This man is a genius**
